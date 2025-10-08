@@ -2,7 +2,7 @@ Hello!! Welcome!! This is a list where I stash my caregivers, since I'm a regres
 
 Main: Mafioso (Dream Game / Frozen Soul / Forsaken) !!! ♡♡♡
 
-Others: Ivan (Alien Stage), ClownPierce (Lifesteal SMP), Ajarbythedoor (RecallAHollowHeart), Tim Wright/Masky (Marble Hornets), Cruel King (Block Tales), Hatred Builderman (Block Tales), Sebastian (Pressure), Jax (The Amazing Digital Circus), Tomura Shigaraki (My Hero Academia),
+Others: Ivan (Alien Stage), ClownPierce (Lifesteal SMP), Ajarbythedoor (RecallAHollowHeart), Tim Wright/Masky (Marble Hornets), Cruel King (Block Tales), Hatred Builderman (Block Tales), Sebastian (Pressure), Jax (The Amazing Digital Circus), Tomura Shigaraki (My Hero Academia)
 
 Unconfirmed: Devesto (Die of Death) !!!
 
