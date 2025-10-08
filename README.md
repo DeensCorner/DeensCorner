@@ -4,6 +4,6 @@ Main: Mafioso (Dream Game / Frozen Soul / Forsaken) !!! ♡♡♡
 
 Others: Ivan (Alien Stage)
 
-There's probably more from past fandoms I've yet to come back to...
+There's probably more from past fandoms I've yet to come back to... but they will be waiting for me!
 
 Unconfirmed: Devesto (Die of Death) !!!
