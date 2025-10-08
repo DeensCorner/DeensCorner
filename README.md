@@ -8,4 +8,4 @@ Unconfirmed: Devesto (Die of Death) !!!
 
 Gone but not forgotten: Spy (Team Fortress 2), Neuvillete (Genshin Impact), Diavolo (JoJo's Bizarre Adventure), Yuuma / VY2 (Vocaloid), Herobrine (Minecraft), Yi Xi (Vocaloid), Elliott (Stardew Valley)
 
-There's probably more from past fandoms I've yet to come back to... but they will be waiting for me!
+There's probably more from past fandoms I've yet to come back to... but they will be waiting for me! ♡
