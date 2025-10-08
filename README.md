@@ -1,5 +1,4 @@
-Hello!! Welcome!! This is a list where I stash my caregivers, since I'm a regressor!! They're there for me when I'm at my worst, and I love them very much. ♡
-Nothing is romantic, and purely platonic!
+Hello!! Welcome!! This is a list where I stash my caregivers, since I'm a regressor!! Nothing is romantic, and purely platonic! They're there for me when I'm at my worst, and I love them very much. ♡
 
 Main: Mafioso (Dream Game / Frozen Soul / Forsaken) !!! ♡♡♡
 
